@@ -1,4 +1,4 @@
-ALX is very educative
+ALX is very awesome
 
 
 
